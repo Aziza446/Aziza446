@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything 
 - 📫 How to reach me azizashakirova201@gmail.com 
 - 😄 Pronouns: Azi, Azizka, Azzi
-- ⚡ Fun fact: I love every animal, I like to help people 
+- ⚡ Fun fact: I love every animal, I like to help people
 
 <!---
 Aziza446/Aziza446 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
